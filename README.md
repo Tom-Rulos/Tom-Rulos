@@ -1,0 +1,2 @@
+- Hi, I’m Tom, but my friends call me Rulos.
+- I'm a self-learner programer, and i'm looking for the suficient knowledge to be hired in my first job!!
